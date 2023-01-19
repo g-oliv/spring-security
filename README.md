@@ -4,7 +4,7 @@
 
 <br/>
 
-![sbs](https://user-images.githubusercontent.com/97737727/213583196-f47bf995-2955-40a5-b99b-18274ec751aa.png)
+![sbs](https://user-images.githubusercontent.com/97737727/213583859-5e729a54-35a4-4b15-8282-3e335e0f39a8.png)
 
 <br/>
 
